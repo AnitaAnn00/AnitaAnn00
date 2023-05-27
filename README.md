@@ -4,8 +4,8 @@
 - 💻 I’m currently learning Department of Information Management.
 - 🤩 I’m looking for help with having more experience in my life.
 - 💫 Pronouns: Ann
-- ⚡ Fun fact: I am a fried egg killer.
- ******💬 shh, I am mysterious. But I can give you some tips school450143@gmail.com
+- ⚡ Fun fact: I am a fried egg killer.    
+######💬 shh, I am mysterious. But I can give you some tips school450143@gmail.com
 <!--
 **AnitaAnn00/AnitaAnn00** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
